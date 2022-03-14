@@ -1,0 +1,2 @@
+# Erasmus-Letonia-
+Semáforo anticovid 
